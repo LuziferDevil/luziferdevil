@@ -1,4 +1,4 @@
-<a href="https://ibb.co/yBjKSrz"><img src="https://i.ibb.co/yBjKSrz/wallpaper.jpg" alt="wallpaper" border="0"></a>
+<img src="https://te.legra.ph/file/88c296032091ae9030189.jpg" alt="wallpaper" border="0"></a>
 
 
 - 👋 Hi, I’m @luziferdevil
